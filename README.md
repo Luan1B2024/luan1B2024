@@ -9,3 +9,5 @@ utilizo esse espaço para minha organização e compartilhamento dos meus projet
 ### voçe entrar em contato comigo 📫
 
 00001100844636sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/xVlgmC8rAHcAAAAC/corinthians-timao.gif)
